@@ -4,6 +4,11 @@
   </a>
 </p>
 
+https://github.com/Theo-Messi
+@Theo-Messi
+fanxiaobin422@gmail.com
+骗子的中之人
+
 # 野猫〔[yemao.one](http://yemao.one?utm_source=github)〕  
 
 [各大网站VIP帐号](#Ⅰ-各大网站VIP帐号) | [全网视频VIP解析](#Ⅱ-全网视频VIP解析) | [百度文库VIP下载](#Ⅲ-百度文库VIP下载) | [素材图库VIP下载](#Ⅳ-素材图库VIP下载) | [学术论文免费下载](#Ⅴ-学术论文免费下载) | [全网音乐MP3免费听及下载](#Ⅵ-全网音乐mp3免费听及下载) | [赞助与支持](#Ⅶ-赞助散人) | [帮助](#Ⅷ-帮助)  
